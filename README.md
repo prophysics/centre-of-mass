@@ -1,0 +1,5 @@
+**7E Centre of Mass Concept Check Interactive PRE/POST concept check accompanying the QUT–STAQ workshop:
+
+From Elicitation to Enactment: A 7E Framework for Evidence-Informed Science Teaching
+
+YOUR-SHINY-URL-HERE
